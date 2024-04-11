@@ -1,0 +1,1 @@
+- [Why the Google Play Store Says Your Device "isn't compatible with this app," and How to Fix it](https://youtu.be/NZtq2y3YaV4)
